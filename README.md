@@ -1,0 +1,1 @@
+# tezaclasa10a
